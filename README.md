@@ -1,4 +1,4 @@
-### Hi there :star2:
+### :star2: Hi there！
 
 ## Status
 
